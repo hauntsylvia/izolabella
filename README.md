@@ -1,4 +1,4 @@
-not mute, just shy in new vcs
+private+hireable software engineer
 
 • inactive lately due to unfortunate life events
 
