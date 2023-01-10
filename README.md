@@ -2,4 +2,4 @@
 
 ⓘ a lot of my experience is under still-applicable NDAs!
 
-⚠ unfortunate recent life events causing gaps, be aware
+**unfortunate recent life events causing gaps, be aware**
